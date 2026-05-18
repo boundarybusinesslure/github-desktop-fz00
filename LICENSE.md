@@ -1,4 +1,4 @@
-# 
+# updated JetBrains IntelliJ IDEA para PC plugins é o melhor JetBrains IntelliJ IDEA para PC plugins com temas personalizados e fluxos de trabalho automatizados. Seguro, confiável e
 
 
 
